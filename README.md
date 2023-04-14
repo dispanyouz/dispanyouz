@@ -5,4 +5,4 @@
 ### I hope I don't disappoint you dude, come back sometimes)
 ### Contact with me:
 - :speech_balloon: Telegram @dispanyouz
-- :cloud: inst: dispanyouz
+- :cloud: Linkdin: in/temirlankurmanbek/
